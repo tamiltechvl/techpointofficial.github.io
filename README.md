@@ -1,1 +1,0 @@
-# techpointofficial.github.io
